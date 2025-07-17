@@ -1,4 +1,4 @@
-Visit **[scienceinfor.github.io/Little-Molecular](https://scienceinfor.github.io/Little-Molecular)** 🚀
+Visit **[scienceinfor.github.io/Little-Molecular1](https://scienceinfor.github.io/Little-Molecular1)** 🚀
 
 <h1 align="center">Lab Website Template</h1>
 <p align="center">
